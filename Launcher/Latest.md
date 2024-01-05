@@ -1,0 +1,1 @@
+**[Launcher | Latest](https://download-sea.mihoyo.com/download/os/HI3_Global_Setup.exe)**
